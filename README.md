@@ -14,4 +14,4 @@
 想要免费观看日本AV免费影片，选择合法、安全的平台至关重要。通过更新频繁的在线视频平台，你可以轻松获取高清、日本成人影片，并确保流畅播放。
 避免使用非法或不安全的站点，以保护个人隐私和安全数据。通过正规渠道，你将享受最新、优质的免费资源。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/td20250707/td12 ）</span>
